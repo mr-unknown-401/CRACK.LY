@@ -9,7 +9,7 @@ Contact Facebook
 <h3 align="center"> You Need Approval To Run This Tools</h3>
 
 <h4 align="center"> WORLDWIDE WORKING MIX FACEBOOK ID CLONING COMMAND </h4>
-![20200808_160757](https://github.com/Niki404-Cyber/Luxury/blob/main/InShot_20230603_025459141.jpg)
+
 
 ## <b>Installation</b>
 
